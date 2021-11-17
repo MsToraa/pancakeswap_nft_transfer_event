@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is Tokarevaanast#9560
+
 # NFT Transfer Event
 
 ## Description
